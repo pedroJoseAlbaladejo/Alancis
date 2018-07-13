@@ -1,2 +1,0 @@
-# Alancis
-Alancis CV's
